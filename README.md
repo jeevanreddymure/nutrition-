@@ -1,6 +1,6 @@
 # Nutrition
-##Muscle pro nutrition
-###so,which food are best include muscle building diet
+## Muscle pro nutrition
+### so,which food are best include muscle building diet
 The Academy of Nutrition and Dietetics recommends that bodybuilders eat 1.2 to 1.7 grams of protein per kilogram bodyweight each day (Caspero, 2014). For example, a 190-pound (86 kg) bodybuilder should aim for 103 to 147 grams of protein daily. Lean protein is best, as it contains relatively less saturated fat. Consider the following protein sources for a healthy bodybuilding diet.
 -Chicken breast
 -Egg whities
