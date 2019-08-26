@@ -8,4 +8,4 @@ The Academy of Nutrition and Dietetics recommends that bodybuilders eat 1.2 to 1
 - Salmon
 - Canned tunna
 - Mixed nuts
-In addition to lean protein carbohydrates form a crirical component in building up muscles.This is because during a weight training session the body stors up glycogen to fuel the workout. Eating carbohydrates following a workout replaces this storage form of glucose, aiding recovery.
+ In addition to lean protein carbohydrates form a crirical component in building up muscles.This is because during a weight training   session the body stors up glycogen to fuel the workout. Eating carbohydrates following a workout replaces this storage form of glucose, aiding recovery.
