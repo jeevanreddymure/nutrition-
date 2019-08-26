@@ -31,7 +31,7 @@ In addition to lean protein carbohydrates form a crirical component in building 
    u can go through the link for detailed information
     [foods high in carbs](https://www.healthline.com/nutrition/12-healthy-high-carb-foods)
  
- ## Referances
+## Referances
 
 Caspero, A. (2014). Protein and the athlete: how much do you need? Academy of Nutrition and Dietetics. Retrieved from  http://www.eatright.org/resource/fitness/sports-and-performance/fueling-your-workout/protein-and-the-athlete
 
